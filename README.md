@@ -1,7 +1,7 @@
 
   </div>
 <div align=center> ⠀⠀⠀⠀
-<img width="400" src="https://litter.catbox.moe/i8x5ka.png" alt="sunday emblem">
+<img width="400" src="https://files.catbox.moe/kb8suo.png" alt="sunday emblem">
 
   
 ![](https://files.catbox.moe/tbsdx8.gif) — [rentry](https://rentry.co/haloviangel) — [atabook](https://sundays.atabook.org) — [carrd](https://kkkaat.carrd.co) — ![](https://files.catbox.moe/k90rir.gif)
